@@ -2,6 +2,5 @@
 
 If support is needed then please reach out to Michael Housh at `michael@mhoush.com`.
 
-## How To
+Or by phone: 1-800-793-6374
 
-This is currently under development, please reach out with questions.
